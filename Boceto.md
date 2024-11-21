@@ -1,2 +1,0 @@
-# Boceto
-### Mi idea es
